@@ -1,4 +1,4 @@
-
+steal a brainrot Script secure offers the most advanced steal a brainrot Script, with auto-sell and silent aim. Perfect for dominating any match.
 
 
 
